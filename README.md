@@ -1,0 +1,1 @@
+# aaa-aa-batteries-adapter-stl_data
